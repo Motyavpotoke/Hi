@@ -1,6 +1,4 @@
-<div align="center">
-<img src="https://catherineasquithgallery.com/uploads/posts/2021-03/1614637893_50-p-fon-zakata-dlya-fotoshopa-59.jpg" align="center" style="width: 100%" />
-</div>  
+
   
 
 ### <div align="center">I'm Matvey, I am 15 years old</div>  
